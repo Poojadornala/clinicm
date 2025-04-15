@@ -46,9 +46,7 @@ Website (Live Background)
 
 ![image](https://github.com/KasiR07/Career-Guidance-System/assets/108777263/f30604a9-adfb-4224-a21e-6a505edbf250)
 
-![image](https://github.com/KasiR07/Career-Guidance-System/assets/108777263/d1789b4e-88da-4459-a199-60560dffd549)
 
-![image](https://github.com/KasiR07/Career-Guidance-System/assets/108777263/d059c9c7-3e3c-4437-815a-649d00ddc298)
 
 ![image](https://github.com/KasiR07/Career-Guidance-System/assets/108777263/762a513a-5d14-4619-ad0e-9c7878991449)
 
